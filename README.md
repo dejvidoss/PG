@@ -1,1 +1,1 @@
-#dejvidoss
+#stransky
